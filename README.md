@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @agastya-nath123
-- 👀 I’m interested in reading, coding ,coding, maths and human behaivioural analysis.
+- 👀 I’m interested in reading, coding ,coding, maths and human behavioural analysis.
 - 🌱 I’m currently learning anything.
 - 💞️ I’m looking to collaborate on many things.
 - 📫 How to reach me 
